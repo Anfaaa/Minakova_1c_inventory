@@ -1,0 +1,1 @@
+# Minakova_1c_inventory
